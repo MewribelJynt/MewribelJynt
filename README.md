@@ -36,6 +36,13 @@ What would it be like if we had a friendly convo? Hmm, smth like this: 'Hii, gm,
 
 I'm a 15-year-old girl, so pls keep that in mind if you're thinking about getting to know me. I'm totally comfortable being friends w/ ppl who are older or younger than me. 😽
 
+💐 I’m an INFP personality type in MBTI. 🌳
+
+↓
+
+Mine leans -T, so I’m an INFP-T. Don’t worry though—I’m not gonna hurt anyone. I’m just more sensitive, tend to overthink, and get anxious more easily.
+Even so, I think it comes with both downsides and upsides. The biggest upside is that I can notice other people’s emotions almost instantly,
+
  ⊹₊˚ 𐙚 ❀ 𐙚 ˚₊⊹ ୨୧ ⊹₊˚ 𐙚 ❀ 𐙚 ˚₊⊹
  
 <div align="center">
