@@ -23,6 +23,7 @@
 First, I’d like to say this & emphasize that…↓
 
 I’m not a native EN speaker, & my EN is rlly bad 😭. Hope u guys understand & be patient w/ me 🥹… pls bear w/ me.
+That means I still have some limitations in English.
 
 ୨ৎ ˚ ༘♡ ⋆｡˚ ❁ ˚｡⋆ ♡༘˚ ୨ৎ
 
