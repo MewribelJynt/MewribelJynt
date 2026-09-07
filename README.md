@@ -123,6 +123,16 @@ My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
 </div>
 
 
+<h2 align="center">
+  <span style="color:#ff69b4;">♡ 𝑴𝒀 𝑪𝑼𝑹𝑹𝑬𝑵𝑻 𝑩𝑰𝑨𝑺 ♡</span>
+</h2>
+
+<img width="736" height="776" alt="52385" src="https://github.com/user-attachments/assets/faf1b3f6-0f62-4041-a075-a1b6f2c36056" />
+
+He’s Wesker, or more specifically, Albert Wesker from the Resident Evil games. I like him for so many reasons, and honestly, he’s just my type 😚 I especially love his RE4 Remake version because they redesigned Wesker and he looks absolutely amazing!
+
+
+
 <!--
 **MewribelJynt/MewribelJynt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
