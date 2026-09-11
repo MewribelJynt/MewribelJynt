@@ -9,6 +9,8 @@ I might be an introvert, but I'm always warm and eager to connect with you!
 
 To be completely honest, English isn't my first language, so I still run into a few bumps along the way! 😣 Thanks so much for your patience with me!
 
+I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm back 🫡 I actually prefer chatting via whisper~"
+
 <h2 align="center">
   <span style="color:#ff69b4;">♡ 𝑴𝒀 𝑪𝑼𝑹𝑹𝑬𝑵𝑻 𝑩𝑰𝑨𝑺 ♡</span>
 </h2>
