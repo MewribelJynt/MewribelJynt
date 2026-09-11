@@ -13,8 +13,9 @@ To be completely honest, English isn't my first language, so I still run into a 
   <span style="color:#ff69b4;">♡ 𝑴𝒀 𝑪𝑼𝑹𝑹𝑬𝑵𝑻 𝑩𝑰𝑨𝑺 ♡</span>
 </h2>
 
-<img width="736" height="776" alt="52471" src="https://github.com/user-attachments/assets/3f464643-1779-4957-9988-8aec29edde73" />
+<img width="736" height="1308" alt="52556" src="https://github.com/user-attachments/assets/500f48cb-8149-46cc-947c-810d811f3cb0" />
 
-He’s Wesker, or more specifically, Albert Wesker from the Resident Evil games. I like him for so many reasons, and honestly, he’s just my type 😚 I especially love his RE4 Remake version because they redesigned Wesker and he looks absolutely amazing!
+It’s Albert Wesker from the Resident Evil series. I have to confess he fits my ideal type so well—both his looks and that whole "dominant daddy" vibe of his (though I'd run away in a heartbeat if I met him in real life 😹 since he's way too evil 😣). I'm especially obsessed with Wesker's design in Resident Evil 4 Remake; he looks insanely attractive! 😚
 
-I’m totally fine with you loving all my biases too! Let’s enjoy our faves together 💞
+
+Matching biases is totally fine by me! Let me know when you want to chat and fan out over our faves 💞🤩
