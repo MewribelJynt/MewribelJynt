@@ -15,7 +15,8 @@ I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm b
   <span style="color:#ff69b4;">♡ 𝑴𝒀 𝑪𝑼𝑹𝑹𝑬𝑵𝑻 𝑩𝑰𝑨𝑺 ♡</span>
 </h2>
 
-<img width="736" height="1308" alt="52556" src="https://github.com/user-attachments/assets/500f48cb-8149-46cc-947c-810d811f3cb0" />
+<img width="736" height="930" alt="52565" src="https://github.com/user-attachments/assets/5867dab3-dc89-40ef-b88f-ef155b70c12d" />
+
 
 It’s Albert Wesker from the Resident Evil series. I have to confess he fits my ideal type so well—both his looks and that whole "dominant daddy" vibe of his (though I'd run away in a heartbeat if I met him in real life 😹 since he's way too evil 😣). I'm especially obsessed with Wesker's design in Resident Evil 4 Remake; he looks insanely attractive! 😚
 
