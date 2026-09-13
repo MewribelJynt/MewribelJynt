@@ -22,7 +22,3 @@ It’s Albert Wesker from the Resident Evil series. I have to confess he fits my
 
 
 Matching biases is totally fine by me! Let me know when you want to chat and fan out over our faves 💞🤩
-
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/d35d91df-d577-46c2-b68f-962217c148b9" alt="52579" width="100%" />
-</div>
