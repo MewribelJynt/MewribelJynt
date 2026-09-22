@@ -7,7 +7,14 @@ WIP
     width="500"
     style="display:block; margin:auto;"
   />
-</p>
+  
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/3388c32f-f378-4edf-b65b-d3fb92c5eb64" alt="Hoa vàng" width="80" />
+  <img src="https://github.com/user-attachments/assets/f729ccfe-3839-40b7-88de-e5ac5f2306a0" alt="Mũi tên hồng" width="50" />
+  <img src="https://github.com/user-attachments/assets/16d7d158-2e4e-48ad-a597-143c93e15697" alt="Hoa xanh" width="80" />
+</div>
+
+LMAO I fr thought the 2 black cats in the pic were my big sis aka my bestie and me! Just the 2 of us chilling and fishing together 😍 Plus my big sis loves plants too!
 
 Hi there! You can simply call me Jynt.
 Don't worry, I'm super friendly 🤗.
@@ -30,4 +37,5 @@ I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm b
 Welcome to my fish tank! Ngl I lowkey love this GIF. The pixel art and colors are super cute, plus it’s chill af 😍
 
 <img width="500" height="288" alt="52734" src="https://github.com/user-attachments/assets/7b52499b-abd4-4e19-ae8d-69a109c1aff6" />
+
 
