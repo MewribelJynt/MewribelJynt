@@ -1,5 +1,33 @@
 WIP
 
+<p align="center">
+  <img
+    src="https://github.com/user-attachments/assets/bd180b13-2d57-4d39-ba81-95bb46c8d0b1"
+    alt="52759"
+    width="500"
+    style="display:block; margin:auto;"
+  />
+</p>
+
+Hi there! You can simply call me Jynt.
+Don't worry, I'm super friendly 🤗.
+My MBTI personality type is INFP-T 💐.
+I might be an introvert, but I'm always warm and eager to connect with you!
+
+To be completely honest, English isn't my first language, so I still run into a few bumps along the way! 😣 Thanks so much for your patience with me!
+
+I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm back 🫡 I actually prefer chatting via whisper~"
+
+<p align="center">
+  <img
+    src="https://github.com/user-attachments/assets/c2baf3f1-d70d-4169-b10e-bf0c60f9ae5c"
+    alt="52758"
+    width="991"
+    style="max-width: 100%; height: auto; display: block; margin: 0 auto;"
+  />
+</p>
+
 Welcome to my fish tank! Ngl I lowkey love this GIF. The pixel art and colors are super cute, plus it’s chill af 😍
 
 <img width="500" height="288" alt="52734" src="https://github.com/user-attachments/assets/7b52499b-abd4-4e19-ae8d-69a109c1aff6" />
+
