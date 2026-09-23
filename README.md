@@ -1,9 +1,9 @@
 WIP
 
-Hi there! You can simply call me Jynt.
-Don't worry, I'm super friendly 🤗.
-My MBTI personality type is INFP-T 💐.
-I might be an introvert, but I'm always warm and eager to connect with you!
+Hi hi! You can just call me Jynt 🌸
+Pls don't worry, I'm super friendly 🤗
+My MBTI is INFP-T 💐
+I might be an introvert, but I'd really love to connect with you! ✨
 
 Feel free to come chat or interact with me! ☺️ If you'd like to interact, pls whisper to me first! I'm super comfortable with touch — cuddles, kisses, and free c+h (cuddles & hugs)! (I put all of this in my bio above 🫶)
 
@@ -21,11 +21,11 @@ Feel free to come chat or interact with me! ☺️ If you'd like to interact, pl
   <img src="https://github.com/user-attachments/assets/16d7d158-2e4e-48ad-a597-143c93e15697" alt="Hoa xanh" width="80" />
 </div>
 
-LMAO I fr thought the 2 black cats in the pic were my big sis aka my bestie and me! Just the 2 of us chilling and fishing together 😍 Plus my big sis loves plants too!
+Lol I fr thought the 2 black cats in the pic were my big sis aka my bestie and me! Just the 2 of us chilling and fishing together 😍 Plus my big sis loves plants too!
 
-To be completely honest, English isn't my first language, so I still run into a few bumps along the way! 😣 Thanks so much for your patience with me!
+Tbh English isn't my first language, so I might make a few mistakes here and there! 😣 Tysm for being so patient with me! 💕
 
-I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm back 🫡 I actually prefer chatting via whisper~"
+I'm usually AFK, so pls feel free to leave me a whisper! I'll reply asap when I'm back 🫡 I actually prefer chatting via whisper~ ✨
 
 <p align="center">
   <img
