@@ -21,11 +21,6 @@ I might be an introvert, but I'm always warm and eager to connect with you!
 
 LMAO I fr thought the 2 black cats in the pic were my big sis aka my bestie and me! Just the 2 of us chilling and fishing together 😍 Plus my big sis loves plants too!
 
-Hi there! You can simply call me Jynt.
-Don't worry, I'm super friendly 🤗.
-My MBTI personality type is INFP-T 💐.
-I might be an introvert, but I'm always warm and eager to connect with you!
-
 To be completely honest, English isn't my first language, so I still run into a few bumps along the way! 😣 Thanks so much for your patience with me!
 
 I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm back 🫡 I actually prefer chatting via whisper~"
@@ -42,4 +37,4 @@ I'm usually AFK, so feel free to leave me a whisper! I'll reply as soon as I'm b
 Welcome to my fish tank! Ngl I highkey love pixel art style!
 <img width="500" height="288" alt="52734" src="https://github.com/user-attachments/assets/7b52499b-abd4-4e19-ae8d-69a109c1aff6" />
 
-
+Feel like introducing hobbies through text is kinda dry, so I'm using pics instead! Just check them out and you'll get it 🌚
