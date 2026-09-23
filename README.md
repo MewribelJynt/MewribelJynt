@@ -1,5 +1,7 @@
 WIP
 
+<img width="600" height="86" alt="52804" src="https://github.com/user-attachments/assets/6977cb7a-bba9-48cf-85ec-4257e1cc7110" />
+
 Hi hi! You can just call me Jynt 🌸
 Pls don't worry, I'm super friendly 🤗
 My MBTI is INFP-T 💐
