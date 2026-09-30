@@ -23,8 +23,6 @@ Feel free to come chat or interact with me! ☺️ If you'd like to interact, pl
   <img src="https://github.com/user-attachments/assets/16d7d158-2e4e-48ad-a597-143c93e15697" alt="Hoa xanh" width="80" />
 </div>
 
-Lol I fr thought the 2 black cats in the pic were my big sis aka my bestie and me! Just the 2 of us chilling and fishing together 😍 Plus my big sis loves plants too!
-
 Tbh English isn't my first language, so I might make a few mistakes here and there! 😣 Tysm for being so patient with me! 💕
 
 I'm usually AFK, so pls feel free to leave me a whisper! I'll reply asap when I'm back 🫡 I actually prefer chatting via whisper~ ✨
